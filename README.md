@@ -5,16 +5,16 @@ A game of consequences
 
 met
 
-**Adjective for a woman and woman's name**
+**A very interesting woman and called Susie**
 
 He wore a *what he wore*
 
-She wore a **what she wore**
+She wore a **bright red dress with pug faces all over it with multi coloured tights and a dressing gown**
 
 He said *"What he said"*
 
-She said **"what she said"**
+She said **Nothing because shes a quiet gal**
 
 As a consequnse, *the consequence*.
 
-And the world said **"what the world said"**
+And the world said **"this was never meant to happen"**
