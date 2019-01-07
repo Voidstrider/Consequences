@@ -11,7 +11,7 @@ He wore a tuxedo
 
 She wore a **what she wore**
 
-He said, What the devil?
+He said, "What the devil?"
 
 She said **"what she said"**
 
