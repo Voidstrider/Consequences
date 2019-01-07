@@ -1,20 +1,20 @@
 # Consequences
 A game of consequences
 
-*Adjective for a man and man's name*
+Scary Steve
 
 met
 
 **A very interesting woman and called Susie**
 
-He wore a *what he wore*
+He wore a tuxedo
 
 She wore a **bright red dress with pug faces all over it with multi coloured tights and a dressing gown**
 
-He said *"What he said"*
+He said, "What the devil?"
 
 She said **Nothing because shes a quiet gal**
 
-As a consequnse, *the consequence*.
+As a consequnse, they both walked off
 
 And the world said **"this was never meant to happen"**
